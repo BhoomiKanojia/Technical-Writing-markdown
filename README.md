@@ -22,6 +22,7 @@ adi**BAA**   hu**DAA**   bhoo**MII**
 - Plays roblox (akele).
 - She is chasmish.
 - She always go to Kashmir (without BAAMII)
+- She likes ducks.
 - 
 
 [Google](https://google.com)
